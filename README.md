@@ -1,1 +1,1 @@
-# James404-cyber_CRACKED_BY_HAMA_LORDY_EZRAILY
+# James404-cyber
